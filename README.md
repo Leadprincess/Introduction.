@@ -55,7 +55,8 @@
 
  <img width="400" height="8" alt="IMG_9785" src="https://github.com/user-attachments/assets/e4b0bcda-e245-41f9-aa77-bc55613e15f4" />
 
- # 𝐓𝐫𝐮𝐬𝐭𝐞𝐝 𝐩𝐞𝐨𝐩𝐥𝐞 & 𝐅𝐚𝐦𝐢𝐥𝐲. 
+ # 𝐓𝐫𝐮𝐬𝐭𝐞𝐝 𝐩𝐞𝐨𝐩𝐥𝐞 & 𝐅𝐚𝐦𝐢𝐥𝐲. <img width="20" height="20" alt="53dd8866" src="https://github.com/user-attachments/assets/759e3a37-ee3e-4ac2-b1ed-7c1b7202a6b6" />
+
 
  ♡ 𝐈𝐳𝐳𝐲 (𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝) <3
 
@@ -78,3 +79,4 @@
 
 <img width="400" height="8" alt="IMG_9785" src="https://github.com/user-attachments/assets/c171f086-26a6-41e6-bc7d-73bbe4468bbf" />
 
+# 𝐃𝐍𝐈 𝐥𝐢𝐬𝐭... 
