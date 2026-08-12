@@ -79,4 +79,5 @@
 
 <img width="400" height="8" alt="IMG_9785" src="https://github.com/user-attachments/assets/c171f086-26a6-41e6-bc7d-73bbe4468bbf" />
 
-# 𝐃𝐍𝐈 𝐥𝐢𝐬𝐭... 
+# 𝐃𝐍𝐈 𝐥𝐢𝐬𝐭... <img width="20" height="20" alt="ywS1Bq1" src="https://github.com/user-attachments/assets/f510c232-9908-44df-8dcc-750a18e9c161" />
+
