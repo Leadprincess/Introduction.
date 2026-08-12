@@ -55,7 +55,7 @@
 
  <img width="400" height="8" alt="IMG_9785" src="https://github.com/user-attachments/assets/e4b0bcda-e245-41f9-aa77-bc55613e15f4" />
 
- # 𝐓𝐫𝐮𝐬𝐭𝐞𝐝 𝐩𝐞𝐨𝐩𝐥𝐞 & 𝐅𝐚𝐦𝐢𝐥𝐲.
+ # 𝐓𝐫𝐮𝐬𝐭𝐞𝐝 𝐩𝐞𝐨𝐩𝐥𝐞 & 𝐅𝐚𝐦𝐢𝐥𝐲. 
 
  ♡ 𝐈𝐳𝐳𝐲 (𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝) <3
 
