@@ -58,25 +58,25 @@
  # 𝐓𝐫𝐮𝐬𝐭𝐞𝐝 𝐩𝐞𝐨𝐩𝐥𝐞 & 𝐅𝐚𝐦𝐢𝐥𝐲. <img width="20" height="20" alt="53dd8866" src="https://github.com/user-attachments/assets/759e3a37-ee3e-4ac2-b1ed-7c1b7202a6b6" />
 
 
- ♡ 𝐈𝐳𝐳𝐲 (𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝) <3
+ ♡ [𝐈𝐳𝐳𝐲](https://github.com/sinfulribbons) (𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝) <3
 
- -𝐘𝐮𝐤𝐢 / 𝐌𝐚𝐟𝐮
+ -[𝐘𝐮𝐤𝐢 / 𝐌𝐚𝐟𝐮](https://github.com/DEADINS0MNIA)
 
- -𝐕𝐢𝐯𝐢𝐚𝐧
+ -[𝐕𝐢𝐯𝐢𝐚𝐧](https://github.com/puppyena)
 
- -𝐙𝐢𝐩
+ -[𝐙𝐢𝐩](https://github.com/zippytie)
 
- -𝐃𝐢𝐧𝐨
+ -[𝐃𝐢𝐧𝐨](https://github.com/tunafishyy)
 
- -𝐘𝐞𝐨𝐧
+ -[𝐘𝐞𝐨𝐧](https://github.com/overloaded)
 
- -𝐌𝐚𝐱
+ -[𝐌𝐚𝐱](https://github.com/WingedMax)
 
- -𝐎𝐥𝐢𝐯𝐞𝐫
+ -[𝐎𝐥𝐢𝐯𝐞𝐫](https://github.com/oliveraliencreature-a11y)
+ 
+ -[𝐊𝐚𝐭𝐬𝐮](https://github.com/Sakasamagirlfeeling)
 
- -𝐊𝐚𝐭𝐬𝐮
-
- -𝐌𝐢𝐧𝐨𝐫𝐢
+ -[𝐌𝐢𝐧𝐨𝐫𝐢](https://github.com/kxhaneazusxwa)
 
  𝐈 𝐥𝐨𝐯𝐞 𝐚𝐥𝐥 𝐨𝐟 𝐲𝐨𝐮. 𝐈𝐟 𝐲𝐨𝐮 𝐝𝐢𝐝𝐧'𝐭 𝐠𝐞𝐭 𝐦𝐞𝐧𝐭𝐢𝐨𝐧𝐞𝐝 𝐭𝐡𝐞𝐧 𝐈'𝐦 𝐬𝐨𝐫𝐫𝐲. 𝐈 𝐬𝐭𝐢𝐥𝐥 𝐥𝐨𝐯𝐞 𝐞𝐯𝐞𝐫𝐲𝐨𝐧𝐞 𝐞𝐪𝐮𝐚𝐥𝐥𝐲.
 
