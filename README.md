@@ -7,6 +7,8 @@
 # 𝐈𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧. <img width="20" height="20" alt="4408ce6e" src="https://github.com/user-attachments/assets/8a74f99e-8660-495b-a747-4255ef95ff00" />
 
 
+[𝐌𝐚𝐢𝐧 𝐈𝐧𝐭𝐫𝐨.](https://github.com/DoctorFunkbeat/Introduction)
+
 
 ✭ 𝐇𝐞𝐥𝐥𝐨. 𝐂𝐚𝐥𝐥 𝐦𝐞 𝐋𝐞𝐚𝐝𝐢𝐚 𝐨𝐫 𝐅𝐮𝐧𝐤𝐛𝐞𝐚𝐭.
 
