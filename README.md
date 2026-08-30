@@ -62,15 +62,13 @@
 
  ♡ [𝐈𝐳𝐳𝐲](https://github.com/sinfulribbons) (𝐠𝐢𝐫𝐥𝐟𝐫𝐢𝐞𝐧𝐝) <3
 
- -[𝐘𝐮𝐤𝐢 / 𝐍𝐲𝐧𝐱](https://github.com/DEADINS0MNIA)
+ -[𝐘𝐮𝐤𝐢 / 𝐍𝐲𝐧𝐱](https://github.com/BR0KEN-MARIONETTE)
 
  -[𝐈𝐧𝐮](https://github.com/puppyena)
 
  -[𝐙𝐢𝐩](https://github.com/zippytie)
 
  -[𝐃𝐢𝐧𝐨](https://github.com/tunafishyy)
-
- -[𝐘𝐞𝐨𝐧](https://github.com/overloaded)
 
  -[𝐌𝐚𝐱](https://github.com/WingedMax)
 
